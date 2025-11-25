@@ -1,4 +1,4 @@
-# Privacy Policy for DocHub - Calendar & Appointments
+# Privacy Policy for DocHub
 
 **Last Updated: November 26, 2025**
 
