@@ -101,7 +101,7 @@ This App is for appointment scheduling and calendar management purposes only. It
 
 For questions about this Privacy Policy or our practices:
 
-**DocHub Calendar & Appointments**
+**DocHub**
 
 - **Email**: support@dochub-calendar.com
 - **Phone**: +91 730 2975 689
