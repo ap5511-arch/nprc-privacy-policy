@@ -109,7 +109,7 @@ For questions about this Privacy Policy or our practices:
 
 ## Consent
 
-By using the NPRC App, you consent to our Privacy Policy and agree to its terms.
+By using DocHub, you consent to our Privacy Policy and agree to its terms.
 
 ---
 
